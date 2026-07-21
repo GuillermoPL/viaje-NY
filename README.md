@@ -205,87 +205,167 @@ Volver andando.
 
 ---
 
-# 📅 Viernes 21 agosto
+# 📅 Viernes 21 agosto – Downtown + Brooklyn + Yankees ⚾
 
-## 08:00
+## 07:45
 
 Desayuno
 
-Ess-a-Bagel
+- Ess-a-Bagel
+- Liberty Bagels
 
 ---
 
-## 09:00
+## 08:45
 
-Battery Park
-
----
-
-## Ferry
-
-Estatua de la Libertad
-
-Ellis Island
+Metro hasta Battery Park.
 
 ---
 
-## Comida
+## 09:30
 
-Stone Street
+🗽 Ferry a la Estatua de la Libertad
 
-o
+- Liberty Island
+- Ellis Island
 
-Pisillo
-
----
-
-## Paseo
-
-Wall Street
-
-Toro
-
-Fearless Girl
-
-NYSE
-
-Trinity Church
+Duración aproximada: 3 horas.
 
 ---
 
-## Memorial 11-S
+## 13:00
+
+Comida
+
+📍 Stone Street
+
+Recomendados:
+
+- Pisillo Italian Panini
+- Adrienne's Pizza Bar
+
+---
+
+## 14:00
+
+Distrito Financiero
+
+- Wall Street
+- Charging Bull
+- Fearless Girl
+- New York Stock Exchange
+- Trinity Church
+
+---
+
+## 15:30
+
+Memorial del 11-S
+
+Opcional:
+
+- Museo 11-S (si os interesa dedicarle 2 horas).
+
+---
+
+## 16:30
 
 Oculus
 
 ---
 
-## Cruzar andando
+## 17:00
 
-Puente de Brooklyn
+Cruzar andando el Puente de Brooklyn.
 
----
+Paradas:
 
-## DUMBO
+- Washington Street
+- Brooklyn Bridge Park
+- Pebble Beach
 
-Washington Street
-
-Pebble Beach
-
-Brooklyn Bridge Park
-
-Esperar hasta que anochezca.
+📸 Aquí tendréis una de las mejores vistas del skyline de todo el viaje.
 
 ---
 
-## Cena
+## 18:15
 
-Juliana's
+🚇 Metro desde DUMBO al Yankee Stadium
+
+Línea A/C → 125 St
+
+↓
+
+Línea 4
+
+↓
+
+161 St – Yankee Stadium
+
+Duración aproximada:
+
+45–50 minutos.
+
+---
+
+## 18:45
+
+Llegada al estadio.
+
+Entrad con tiempo.
+
+🎁 Es **Cody Bellinger Bobblehead Night**, así que los primeros aficionados recibirán un muñeco coleccionable gratuito (hasta agotar existencias).
+
+Aprovechad para:
+
+- recorrer el estadio
+- comprar merchandising
+- ver el calentamiento
+- comer algo antes del partido
+
+---
+
+## 19:05
+
+⚾ New York Yankees 🆚 Toronto Blue Jays
+
+Recomendación:
+
+Si finalmente compráis la **Sección 210**, habréis elegido una de las mejores zonas relación calidad-precio del estadio.
+
+Comida típica para probar:
+
+- 🌭 Hot Dog
+- 🥨 Pretzel
+- 🍟 Patatas con queso
+- 🍺 Cerveza (si os apetece)
+- 🍦 Casco de helado ("Helmet Sundae")
+
+No os preocupéis si no entendéis todas las reglas; gran parte de la experiencia es disfrutar del ambiente.
+
+---
+
+## 22:00–22:30
+
+Fin del partido.
+
+Metro de vuelta al hotel.
+
+Línea 4
+
+↓
+
+Grand Central
+
+↓
+
+Línea 7
 
 o
 
-Time Out Market
+Línea 1
 
----
+hasta 23rd Street.
 
 # 📅 Sábado 22 agosto
 
@@ -668,3 +748,67 @@ Rooftop:
 8. 😂 Pasar una noche en Comedy Cellar.
 9. 🍸 Tomar una copa en Nubeluz o 230 Fifth.
 10. 🌆 Pasear sin rumbo por West Village y SoHo.
+
+
+# ⚾ Partido de los New York Yankees
+
+## ¿Merece la pena?
+
+**Sí, absolutamente.**
+
+Aunque nunca hayáis visto un partido de béisbol, asistir a un encuentro de los Yankees es una de las experiencias más auténticas que podéis vivir en Nueva York.
+
+## Partido elegido
+
+📅 Viernes 21 de agosto
+
+🕖 19:05
+
+🆚 Toronto Blue Jays
+
+📍 Yankee Stadium
+
+## Entradas
+
+Recomendación:
+
+✅ Sección **210**
+
+Precio aproximado:
+
+**88 $**
+
+Es una de las mejores zonas del estadio por relación calidad-precio.
+
+## Consejo
+
+Llegad al menos **30–40 minutos antes**.
+
+Ese día hay promoción de:
+
+🎁 **Cody Bellinger Bobblehead Night**
+
+Los primeros aficionados que entren recibirán un muñeco coleccionable gratuito.
+
+## Cómo llegar
+
+Desde DUMBO:
+
+Metro A/C
+
+↓
+
+125 St
+
+↓
+
+Línea 4
+
+↓
+
+161 St – Yankee Stadium
+
+Duración aproximada:
+
+45–50 minutos.
+
